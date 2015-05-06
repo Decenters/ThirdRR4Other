@@ -7,6 +7,7 @@ Should We Have A Third Restroom For Other
 |There have been several lawsuits on this issue and many public places has began to incorporate third restrooms in their facilities|
 |This is considered a form of discrimination|
 | California, District of Columbia, Delaware, Hawaii, Illinois, Maine, Minnesota, New Mexico, Rhode Island, and Washington prohibit discrimination based on gender identity.|
+|There are more than 150 schools across the U.S. that have gender-neutral bathrooms, according to the University of Massachusetts Amherst's LGBTQ organization The Stonewall Center.|
 
 |Pros | Cons |
 |:------:|:---------:|
