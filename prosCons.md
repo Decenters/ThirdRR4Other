@@ -113,4 +113,4 @@ Confllict will always exist in this world, and the silly ones will take the majo
 |http://www.who.int/gender/whatisgender/en/|
 |http://www.oxforddictionaries.com/us/definition/american_english/gender|
 |http://equalityfederation.org/|
-|http://www.slate.com/blogs/future_tense/2014/02/13/facebook_custom_gender_options_here_are_all_56_custom_options.html|
+|http://www.slate.com/|
